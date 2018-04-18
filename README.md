@@ -1,1 +1,1 @@
-# IT_PROJECT 6th Semister
+# IT_PROJECT 6th Semester
